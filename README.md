@@ -11,4 +11,4 @@
 
 ## Sobre mí
 
-Me gustan mucho las motos, viajar y conocer lugares nuevos, no se que tiene que ver con pdp pero gracias por su atencion.
+Me gustan mucho las motos y los videojuegos. Conocer lugares, viajar y jugar cs. No se que tiene que ver con pdp pero gracias por su atencion.
